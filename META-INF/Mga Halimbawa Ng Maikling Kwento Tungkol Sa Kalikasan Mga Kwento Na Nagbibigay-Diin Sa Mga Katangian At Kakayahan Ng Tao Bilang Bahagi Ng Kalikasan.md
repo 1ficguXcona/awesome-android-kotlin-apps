@@ -1,0 +1,41 @@
+
+ 
+# Mga Halimbawa Ng Maikling Kwento Tungkol Sa Kalikasan: Mga Aral At Inspirasyon
+ 
+Ang kalikasan ay isang napakahalagang bahagi ng ating buhay. Ito ay nagbibigay sa atin ng mga likas na yaman, mga magagandang tanawin, at mga makabuluhang karanasan. Ngunit sa kasamaang palad, hindi lahat ng tao ay nakaka-appreciate ng kahalagahan ng kalikasan. Marami ang nagsasamantala, nang-aabuso, at nangungurakot sa mga biyaya nito. Kaya naman, mahalagang magbasa ng mga maikling kwento tungkol sa kalikasan upang mamulat tayo sa mga katotohanan at mga aral na dapat nating matutunan.
+ 
+Sa artikulong ito, ibabahagi namin sa inyo ang ilan sa mga halimbawa ng maikling kwento tungkol sa kalikasan na makakapagbigay sa inyo ng mga inspirasyon at gabay sa pagpapahalaga sa ating kapaligiran. Sana ay maging daan ang mga ito upang tayo ay maging mas responsable at mas mapagmalasakit sa ating inang kalikasan.
+ 
+**Download →→→ [https://t.co/FkMs6vrLaL](https://t.co/FkMs6vrLaL)**
+
+
+ 
+## Ang Alamat Ng Puno Ng Narra
+ 
+Isa sa mga halimbawa ng maikling kwento tungkol sa kalikasan ay ang alamat ng puno ng narra. Ayon sa alamat, may isang batang lalaki na nagngangalang Narra na mahilig maglaro sa gubat. Isang araw, habang naglalaro siya, nakita niya ang isang malaking puno na may mga bunga na kulay pula. Napukaw ang kanyang kuryosidad at sinubukan niyang pitasin ang isa sa mga bunga. Ngunit nang hawakan niya ito, biglang sumakit ang kanyang kamay at lumabas ang dugo. Natakot si Narra at tumakbo palayo.
+ 
+Nang makauwi siya sa kanilang bahay, sinabi niya ang nangyari sa kanyang ina. Ang sabi ng kanyang ina, ang punong iyon ay tinatawag na "narra" at ito ay sagrado para sa mga katutubo. Hindi dapat galawin o sirain ang punong iyon dahil ito ay may kapangyarihan na magbigay ng biyaya o parusa sa mga tao. Ang bunga nito ay simbolo ng dugo ng mga ninuno na nag-alay ng kanilang buhay para sa kalayaan at karapatan ng kanilang lahi.
+ 
+Pinagsabihan ng kanyang ina si Narra na bumalik sa gubat at humingi ng tawad sa punong narra. Ginawa ni Narra ang sinabi ng kanyang ina at humarap sa punong narra. Humingi siya ng patawad at ipinangako niyang hindi na niya uulitin ang kanyang pagkakamali. Naramdaman niya ang isang mainit na hagod sa kanyang kamay at nakita niya na gumaling na ang sugat niya. Nakinig din siya sa isang mahinahong tinig na nagsasabi: "Narra, anak ko, salamat sa iyong paghingi ng tawad. Huwag kang matakot, hindi kita parurusahan. Sa halip, bibigyan kita ng isang biyaya. Mula ngayon, ikaw ay magiging isang puno ng narra na magbibigay ng lilim at ginhawa sa mga taong nasa paligid mo."
+ 
+Mga Aral at Inspirasyon Mula sa Maikling Kwento Tungkol sa Kalikasan,  Mga Tula Tungkol sa Kalikasan na May Kaugnayan sa Maikling Kwento,  Mga Pagsusulit at Gawain sa Filipino na Tumatalakay sa Maikling Kwento Tungkol sa Kalikasan,  Mga Uri at Katangian ng Maikling Kwento Tungkol sa Kalikasan,  Mga Sikat at Kilalang Manunulat ng Maikling Kwento Tungkol sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Pagmamahal sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Pagpapahalaga sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Pag-aalaga sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Pagkasira ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Epekto ng Kalikasan sa Buhay ng Tao,  Mga Halimbawa ng Maikling Kwento Tungkol sa Kahalagahan ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Kagandahan ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Kahirapan at Pagbangon ng mga Taong Nasa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa Pakikipag-ugnayan at Pakikipagsapalaran sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Nilalang at Engkanto na Nananahan sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Alamat at Mitolohiya na May Kinalaman sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Kuwentong Bayan na Naglalarawan ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Pabula at Parabula na Nagtuturo ng Aral tungkol sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Hayop at Iba Pang Nabubuhay na Organismo na Bahagi ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Likas na Yaman at Likas na Sakuna na Dulot ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Suliranin at Hamon na Kinakaharap ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Solusyon at Hakbang na Ginagawa para Maprotektahan ang Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Batas at Patakaran na Naglalayong Pangalagaan ang Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Organisasyon at Indibidwal na Nagtataguyod at Nagtatanggol ng Karapatan ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Programa at Proyekto na Nagpapabuti at Nagpapaunlad ng Kalidad ng Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Inobasyon at Teknolohiya na Nakakatulong o Nakakasama sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Isyu at Kontrobersiya na Umiiral tungkol sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Opinyon at Pananaw na Iba't Iba tungkol sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Pangarap at Layunin na May Kaugnayan sa Kalikasan,  Mga Halimbawa ng Maikling Kwento Tungkol sa mga Gawi at Ugali na Nakakaapekto sa Kalusugan at Kapakanan ng Kalikasan
+ 
+Nagtaka si Narra at hindi makapaniwala sa narinig niya. Ngunit bago pa siya makapagsal
+
+ita, bigla siyang naramdaman na lumiliit ang kanyang katawan at lumalago ang kanyang buhok. Un ti-unti siyang nagbago ng anyo hanggang sa siya ay naging isang puno ng narra na nakatayo sa gitna ng gubat. Hindi na siya makagalaw o makapagsalita, ngunit nakakaramdam pa rin siya ng mga bagay sa paligid niya. Nakakakita siya ng mga ibon na dumadapo sa kanyang mga sanga at kumakanta ng mga masasayang awitin. Nakakarinig siya ng mga ilog na umaagos sa kanyang tabi at nagbibigay ng buhay sa mga halaman at hayop. Nakakaamoy siya ng mga bulaklak na nagpapabango sa hangin at nagbibigay ng kulay sa kapaligiran. At higit sa lahat, nakakadama siya ng mga tao na dumadalaw sa kanya at nagpapasalamat sa kanyang mga biyaya.
+ 
+Sa kabila ng kanyang pagbabago, hindi naging malungkot si Narra. Sa halip, naging masaya siya dahil nakatutulong siya sa iba at nakikita niya ang kagandahan ng kalikasan. Naisip niya na ito ang tunay na biyaya na ibinigay sa kanya ng punong narra: ang maging bahagi ng kalikasan at makisama sa lahat ng nilalang.
+ 
+## Ang Kwento Ng Dalawang Magkaibigan
+ 
+Isa pang halimbawa ng maikling kwento tungkol sa kalikasan ay ang kwento ng dalawang magkaibigan na sina Lito at Berto. Sila ay parehong mahilig maglakbay at mag-explore ng iba't ibang lugar. Isang araw, nagpasya silang pumunta sa isang bundok na malapit sa kanilang bayan. Dala nila ang kanilang mga gamit at pagkain para sa kanilang paglalakbay.
+ 
+Nag-enjoy sila sa kanilang pag-akyat sa bundok at nakita nila ang mga magagandang tanawin na hindi nila nakikita sa kanilang lugar. Nakita nila ang mga malalaking puno, mga makukulay na bulaklak, mga mababait na hayop, at mga malinaw na tubig. Napahanga sila sa ganda ng kalikasan at naisip nila na swerte sila na makaranas nito.
+ 
+Nang umabot sila sa tuktok ng bundok, naghanap sila ng isang lugar kung saan sila makakapagpahinga at makakakain. Nakita nila ang isang maliit na kubo na may isang matandang babae na nakatira doon. Lumapit sila sa kubo at bumati sila sa matanda. Ang sabi ng matanda, "Mga anak, kayo ba ay mga turista? Maligayang pagdating sa aking tahanan. Pasensya na kayo kung wala akong masyadong maiaalok sa inyo. Mahirap lang ako at ito lang ang aking tirahan."
+ 
+Nagpasalamat sila sa matanda at sinabi nila na sila ay mga magkaibigan na gustong mag-explore ng bundok. Nag-alok sila ng ilan sa kanilang pagkain sa matanda bilang pasasalamat sa kanyang pagtanggap sa kanila. Tinanggap naman ng matanda ang kanilang alok at nagpasalamat din siya sa kanila. Habang kumakain sila, nagkuwento sila tungkol sa kanilang sarili at tungkol sa kanilang paglalakbay. Nakinig din sila sa mga kwento ng matanda tungkol sa kanyang buhay at tungkol sa bundok.
+ 
+Ang sabi ng matanda, "Mga anak
+ 8cf37b1e13
+ 
